@@ -1,5 +1,5 @@
-# Mysticed_ on top XD💪
-^ this
+# Mysticed_ on top 💪💪
+
 ### Me:
 Bad at java
 Worse at java
